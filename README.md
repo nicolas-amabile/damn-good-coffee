@@ -36,7 +36,7 @@
 ## Brunch
 
 - **La Greca Café -** [@lagrecacafe](https://www.instagram.com/lagrecacafe/) - [Wed - Sat, 17:00 - 23:00] and [Sun, 11:00 - 16:00]
-- **Café Gourmand-** [@cafegourmand.uy](https://www.instagram.com/cafegourmand.uy/) - [Fri - Sun, 8:15 - 16:30] **Important:** July and first weeks of August closed.
+- **Café Gourmand-** [@cafegourmand.uy](https://www.instagram.com/cafegourmand.uy/) - [Fri - Sun, 8:15 - 16:30] **Important:** July and first weeks of August 2019 closed.
 - **La Rotiseria-** [@la.rotiseria](https://www.instagram.com/la.rotiseria/) - [Mon - Fri, 11:30 - 19:30] and [Sat, 11:30 - 14:00]
 - **Sometimes Sunday Café & restaurante-** [@sometimessundaycafe](https://www.instagram.com/sometimessundaycafe/) - [Thu - Sun, 9:00 - 17:00]
 - **El Mingus-** [@el.mingus](https://www.instagram.com/el.mingus/) - [Sat, 11:00 - 15:00]
