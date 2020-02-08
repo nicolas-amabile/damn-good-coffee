@@ -31,12 +31,11 @@
 - **Club del Pan-** [@cafe_club_del_pan](https://www.instagram.com/cafe_club_del_pan/) - [Tue - Fri, 9:00 - 20:00]
 - **La Latina Café-** [@lalatina_cafe](https://www.instagram.com/lalatina_cafe/) - [Mon - Fri, 8:00 - 20:00], [Sat, 10:00 - 20:00] and [Sun, 12:00 - 20:00]
 - **Sauco café-** [@sauco_cafe](https://www.instagram.com/sauco_cafe/) - [Mon - Fri, 8:00 - 20:00]
-- **Craft - The Art of Coffee-** [@craftmvd](https://www.instagram.com/craftmvd/) - [Tue - Fri, 10:30 - 20:00] and [Sat - Sun, 11:00 - 20:00]
 
 ## Brunch
 
 - **La Greca Café -** [@lagrecacafe](https://www.instagram.com/lagrecacafe/) - [Wed - Sat, 17:00 - 23:00] and [Sun, 11:00 - 16:00]
-- **Café Gourmand-** [@cafegourmand.uy](https://www.instagram.com/cafegourmand.uy/) - [Fri - Sun, 8:15 - 16:30] **Important:** July and first weeks of August 2019 closed.
+- **Café Gourmand-** [@cafegourmand.uy](https://www.instagram.com/cafegourmand.uy/) - [Fri - Sun, 8:15 - 16:30]
 - **La Rotiseria-** [@la.rotiseria](https://www.instagram.com/la.rotiseria/) - [Mon - Fri, 11:30 - 19:30] and [Sat, 11:30 - 14:00]
 - **Sometimes Sunday Café & restaurante-** [@sometimessundaycafe](https://www.instagram.com/sometimessundaycafe/) - [Thu - Sun, 9:00 - 17:00]
 - **El Mingus-** [@el.mingus](https://www.instagram.com/el.mingus/) - [Sat, 11:00 - 15:00]
